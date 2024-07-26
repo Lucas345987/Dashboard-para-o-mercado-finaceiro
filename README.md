@@ -1,0 +1,1 @@
+# Dashboard-para-o-mercado-finaceiro
